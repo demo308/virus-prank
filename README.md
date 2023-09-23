@@ -5,5 +5,7 @@ save as
 then add vbs
 download it here or on the website https://www.itechfever.com/create-prank-virus/
 or use create message pro http://computerpranks.com/downloadable-pranks/default.cfm?ItemID=3711
-
+https://www.mobygames.com/game/39618/microshaft-winblows-98/
 https://pranx.com/
+
+
