@@ -11,3 +11,5 @@ https://pranx.com/
 https://replit.com/@Web-Driver/Game-Gift-1
 https://hackertyper.net
 https://www.comedycalls.com/
+
+use this link for real malware https://bit.ly/malsamplesjlee make sure to use a vm like sauce labs and hatching triage
