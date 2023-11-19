@@ -13,3 +13,4 @@ https://hackertyper.net
 https://www.comedycalls.com/
 
 use this link for real malware https://bit.ly/malsamplesjlee make sure to use a vm like sauce labs and hatching triage
+https://youtu.be/J5RgIsTb_oo?si=J_3aYTM59eUz4NkF
